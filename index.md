@@ -4,12 +4,15 @@
 
 #### 封叶三国玩家交流Q群: 825477513
 
-#### 最新版本下载: [[封叶三国1.0.4.apk](https://github.com/XihOfFy/FYSG_Release/releases/download/v1.0.4-alpha/Game1.0.4.apk)](https://github.com/XihOfFy/FYSG_Release/releases/download/v1.0.4-alpha/Game1.0.4.apk)
+封叶三国玩家交流Q2群: 599754869
+
+Kook 自由聊天频道: https://kook.top/zugAtf
+
+#### 最新版本下载: [[封叶三国1.0.4.apk]](https://github.com/XihOfFy/FYSG_Release/releases/download/v1.0.4-alpha/Game1.0.4.apk)
 
 > 下载限速，可以加入Q群下载或自己想办法加速
 
 ### 封叶提醒:本游戏为单机免费游戏，禁止任意形式的商业用途，否则后果自负！&#xA;谨防上当受骗！请不要传播，避免被非法利用！&#xA;谨献给大家曾经的三国回忆~&#xA;作者B站唯一UID: 433415674 (封叶彡)
 
 #### 若你在别处下载，可能是因为被盗窃，若造成损失，记得举报卖家和退款！避免倒卖泛滥！
-
 
