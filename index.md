@@ -4,9 +4,9 @@
 
 #### 封叶三国玩家交流Q群 （已经废弃，乱封）
 
-## Kook 自由聊天频道: https://kook.top/zugAtf
+## Kook 自由聊天频道: https://kook.vip/gpS0oe
 
-#### 最新版本下载: [[封叶三国1.0.4.apk]](https://github.com/XihOfFy/FYSG_Release/releases/download/v1.0.4-alpha/Game1.0.4.apk)
+#### 最新版本下载: [[封叶三国1.0.8.apk]](https://github.com/XihOfFy/FYSG_Pub/releases/download/v1.0.8/FYSG1.0.8.apk)
 
 > 下载限速，可以加入Kook聊天渠道查看网盘地址 或 想办法加速GitHub
 
